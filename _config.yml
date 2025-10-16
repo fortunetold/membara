@@ -3,7 +3,7 @@ title: Membara
 tagline: blog
 url: "https://membara.solusijodoh.com"   # isi dengan domain asli kamu
 paginate: 7
-baseurl: "https://membara.solusijodoh.com"
+baseurl: ""
 permalink: /:title
 
 # Plugins (Gems)
