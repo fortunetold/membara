@@ -1,9 +1,9 @@
 # Setup
-title: Poo
+title: Membara
 tagline: blog
-url: ""   # isi dengan domain asli kamu
+url: "https://membara.solusijodoh.com"   # isi dengan domain asli kamu
 paginate: 7
-baseurl: "/POO"
+baseurl: "https://membara.solusijodoh.com"
 permalink: /:title
 
 # Plugins (Gems)
