@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "Menemukan Ketenangan Hati: Kekuatan Doa "Allahumma Anta Syafi Syifaan"
+title: "Menemukan Ketenangan Hati: Kekuatan Doa Allahumma Anta Syafi Syifaan"
 ---
 
 Di tengah hiruk pikuk kehidupan modern, seringkali kita merasa cemas, lelah, bahkan sakit. Tubuh dan jiwa bisa saja mengalami ujian yang berat, membuat kita merindukan kesembuhan, kedamaian, dan ketenangan batin. Di saat-saat seperti itulah, kekuatan doa menjadi sumber penyejuk hati yang tak ternilai harganya. Salah satu doa yang memiliki makna mendalam dan seringkali menjadi pelipur lara adalah doa yang memohon kesembuhan kepada Sang Penyembuh sejati, yaitu Allah SWT. Di antara lautan doa-doa yang terucap dari bibir hamba-Nya, doa dengan frasa "Allahumma anta syafi syifaan" memancarkan harapan yang begitu kuat.

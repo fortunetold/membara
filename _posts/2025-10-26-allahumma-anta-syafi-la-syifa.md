@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "Menemukan Ketenangan Melalui Doa "Allahumma Anta Syafi La Syifa"
+title: "Menemukan Ketenangan Melalui Doa Allahumma Anta Syafi La Syifa"
 ---
 
 Kehidupan seringkali menghadirkan pasang surut, ujian, dan cobaan yang menguji ketabahan hati. Dalam setiap kesulitan, ada satu sumber kekuatan yang tak pernah padam, yaitu Allah SWT. Ketika tubuh merasa lemah, jiwa terbebani, atau hati dilanda kecemasan, doa menjadi jembatan penghubung kita dengan Sang Penyembuh Agung. Di antara lautan doa yang menyejukkan hati, terdapat sebuah permohonan yang begitu mendalam dan penuh pengharapan, yaitu doa **"Allahumma Anta Syafi La Syifa"**.

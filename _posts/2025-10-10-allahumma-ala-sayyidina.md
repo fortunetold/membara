@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "Menyelami Makna Dzikir: Mengagungkan Sang Pencipta Melalui "Allahumma Ala Sayyidina""
+title: "Menyelami Makna Dzikir: Mengagungkan Sang Pencipta Melalui Allahumma Ala Sayyidina"
 ---
 
 Dalam setiap helaan napas, dalam setiap detak jantung, tersimpan potensi keagungan yang tak terhingga. Potensi ini dapat kita sadari dan hidupkan melalui berbagai cara, salah satunya adalah dengan dzikir. Dzikir, sebuah amalan spiritual yang mengajarkan kita untuk senantiasa mengingat Allah SWT, bukan sekadar pengucapan kata-kata kosong, melainkan sebuah perjalanan jiwa yang mendalam. Salah satu bentuk dzikir yang sarat makna dan sering kita lantunkan adalah permohonan keberkahan dan penghormatan kepada Nabi Muhammad SAW, yang di dalamnya terkandung ungkapan "Allahumma ala sayyidina".

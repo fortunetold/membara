@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "Mengurai Makna "Allahumma Bil Haqqi Allah Memasang Dinding"
+title: "Mengurai Makna Allahumma Bil Haqqi Allah Memasang Dinding"
 ---
 
 Dalam relung keimanan dan renungan spiritual, terkadang kita menemukan frasa-frasa yang begitu ringkas namun sarat makna. Salah satunya adalah "Allahumma bil haqqi Allah memasang dinding". Kalimat ini bukan sekadar rangkaian kata, melainkan sebuah pernyataan teologis yang mendalam, mengundang kita untuk menyelami konsep kekuasaan, kebijaksanaan, dan penjagaan Ilahi. Mari kita bedah lebih jauh apa yang terkandung di balik ungkapan ini, bagaimana ia relevan dalam kehidupan sehari-hari, dan bagaimana kita bisa menarik hikmah darinya.
