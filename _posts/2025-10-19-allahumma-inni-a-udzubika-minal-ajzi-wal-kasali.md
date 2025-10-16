@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "Menghadapi Kemalasan dan Kelemahan: Kekuatan Doa "Allahumma Inni A Udzubika Minal Ajzi Wal Kasali""
+title: "Menghadapi Kemalasan dan Kelemahan: Kekuatan Doa Allahumma Inni A Udzubika Minal Ajzi Wal Kasali"
 ---
 
 Kehidupan seringkali dihadapkan pada berbagai ujian, baik yang datang dari luar maupun dari dalam diri kita sendiri. Salah satu ujian yang paling umum dan seringkali menjebak kita adalah kemalasan (kasal) dan ketidakmampuan atau kelemahan (ajz). Kedua hal ini bisa menghalangi kita untuk meraih potensi penuh, mencapai tujuan, dan bahkan menjalankan ibadah dengan maksimal. Dalam menghadapi tantangan ini, Islam telah mengajarkan sebuah doa yang sangat powerful, yaitu **"Allahumma inni a udzubika minal ajzi wal kasali"**.

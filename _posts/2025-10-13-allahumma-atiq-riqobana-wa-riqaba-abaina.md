@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "Menggali Makna Doa "Allahumma Atiq Riqobana Wa Riqaba Abaina" untuk Kebebasan Jiwa"
+title: "Menggali Makna Doa Allahumma Atiq Riqobana Wa Riqaba Abaina" untuk Kebebasan Jiwa"
 ---
 
 Ada kalanya hati kita diliputi kekhawatiran, rasa sesal, atau bahkan beban yang terasa menghimpit. Dalam momen-momen seperti itulah, doa menjadi pelipur lara dan sumber kekuatan yang tak ternilai. Salah satu doa yang memancarkan harapan dan kerinduan akan kebebasan, baik di dunia maupun akhirat, adalah doa **"Allahumma atiq riqobana wa riqaba abaina."** Doa ini bukan sekadar untaian kata, melainkan sebuah permohonan mendalam kepada Sang Pencipta untuk membebaskan kita dan leluhur kita dari berbagai belenggu.

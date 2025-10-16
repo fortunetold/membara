@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "Menemukan Ketenangan Batin Melalui "Allahumma Sang Sukmo Mulyo""
+title: "Menemukan Ketenangan Batin Melalui "Allahumma Sang Sukmo Mulyo"
 ---
 
 Dalam hiruk pikuk kehidupan modern, seringkali kita merasa terombang-ambing oleh tuntutan, kekhawatiran, dan kebisingan yang tak henti-hentinya. Ketenangan batin menjadi sebuah komoditas langka, sesuatu yang kita dambakan namun sulit untuk digapai. Di tengah pencarian jati diri dan kedamaian, banyak dari kita mencari pegangan spiritual, sebuah penuntun yang dapat mengarahkan kita pada ketenteraman hati yang sejati. Salah satu ungkapan yang mungkin belum banyak dikenal namun sarat makna adalah "Allahumma Sang Sukmo Mulyo".

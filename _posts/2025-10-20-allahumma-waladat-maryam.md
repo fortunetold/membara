@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "Keagungan Ilahi dalam Kisah Maryam: Refleksi "Allahumma Waladat Maryam""
+title: "Keagungan Ilahi dalam Kisah Maryam: Refleksi "Allahumma Waladat Maryam"
 ---
 
 Kisah Nabi Isa Al-Masih adalah salah satu kisah paling mengharukan dan penuh makna dalam sejarah agama Samawi. Di jantung kisah ini, terdapat sosok yang begitu agung dan mulia, yaitu Siti Maryam Al-Azizah, ibunda dari Al-Masih. Kehadiran Maryam dalam narasi Islam bukan sekadar sebagai ibu, tetapi sebagai lambang kesucian, ketakwaan, dan mukjizat ilahi yang tak terbantahkan. Doa yang sering terucap, *"Allahumma waladat Maryam"*, yang secara harfiah berarti "Ya Allah, yang melahirkan Maryam", menjadi pengingat konstan akan peran krusialnya dan keajaiban di balik kelahirannya.
