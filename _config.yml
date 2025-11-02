@@ -2,14 +2,14 @@
 title: Membara
 tagline: blog
 url: "https://membara.solusijodoh.com"   # isi dengan domain asli kamu
-paginate: 7
+
 baseurl: ""
 permalink: /:title
 
 # Plugins (Gems)
 plugins:
   - jekyll-gist
-  - jekyll-paginate
+  
   - jekyll-seo-tag
   - jekyll-sitemap     # <--- tambahkan ini
 
